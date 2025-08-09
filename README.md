@@ -3,8 +3,8 @@
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ⋆✰⩇⩇: ⩇⩇✰⋆ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-welcome to my profile. (◣ _ ◢)
-
+welcome to my profile. (◣ _ ◢)<br>
+![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/95a322b3.gif?raw=true)
 ## ★ Abt me ★
 
 ⟡ name : duzt/duzty<br>
@@ -21,8 +21,11 @@ welcome to my profile. (◣ _ ◢)
 ⟡ dsmp / a dream stan<br>
 ⟡ toxic shipper
 
-![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8898fcb4515712ba5792c83cbd24df26.jpg?raw=true)
+## ★ BYI ★
 
+⟡ I suck at socializing outside of discord servers - i also hate socializing sometimes<br>
+⟡ I'm a minor<br>
+⟡ I might come out rude if so then I'm sorry.
 
 ## ★ Interests ★
 
@@ -33,7 +36,7 @@ welcome to my profile. (◣ _ ◢)
 ⟡ Forsaken/DreamGame<br>
 ⟡ FNF<br>
 ⟡ Undertale/Deltarune<br>
-⟡ more in [carrd](https://starriss.carrd.co/) ![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/95a322b3.gif?raw=true)
+⟡ more in [carrd](https://starriss.carrd.co/)
 
 ## ★ Where to find me ★
 
@@ -43,3 +46,7 @@ welcome to my profile. (◣ _ ◢)
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
 ⟡ [YouTube](https://www.youtube.com/@DuztyStarz)<br>
 ⟡ [More in Resite](https://resite.link/Starru)
+
+<br><br><br>
+space jumpscare<br>
+![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8898fcb4515712ba5792c83cbd24df26.jpg?raw=true)
