@@ -25,7 +25,8 @@ welcome to my profile. (◣ _ ◢)<br>
 
 ⟡ I suck at socializing outside of discord servers - i also hate socializing sometimes<br>
 ⟡ I'm a minor<br>
-⟡ I might come out rude if so then I'm sorry.
+⟡ I might come out rude if so then I'm sorry.<br>
+⟡ If you came from ponytown PLEASE ASK before adding me on dicord
 
 ## ★ Interests ★
 
@@ -40,7 +41,7 @@ welcome to my profile. (◣ _ ◢)<br>
 
 ## ★ Where to find me ★
 
-⟡ Pony Town (WILL ALWAYS HAVE DISCORD TAG IN PROFILE, x_x_star_x_x)<br>
+⟡ Pony Town (MOST OF MY SKINS WILL HAVE MY DISCORD TAG, x_x_star_x_x)<br>
 ⟡ [Twitter](https://twitter.com/DuztyStarz)<br>
 ⟡ [Funkipedia Mods Wiki](https://fridaynightfunking.fandom.com/wiki/User:DuztyStarz)<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
