@@ -26,7 +26,7 @@ welcome to my profile. (◣ _ ◢)<br>
 ⟡ I suck at socializing outside of discord servers - i also hate socializing sometimes<br>
 ⟡ I'm a minor<br>
 ⟡ I might come out rude if so then I'm sorry.<br>
-⟡ If you came from ponytown PLEASE ASK before adding me on dicord
+⟡ If you came from ponytown PLEASE ASK before adding me on discord
 
 ## ★ Interests ★
 
