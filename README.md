@@ -1,7 +1,9 @@
 ## " ɪ ᴅɪᴅ ɪᴛ ғᴏʀ ʏᴏᴜ "
 
 
+<p align="center"> 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ⋆✰⩇⩇: ⩇⩇✰⋆ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+</p>
 
 <p align="center">
   <img width="2095" height="360" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8bad8130.png?raw=true">
@@ -18,10 +20,12 @@ welcome to my profile. (◣ _ ◢)<br>
 
 ⟡ name : duzt/duzty<br>
 ⟡ prns : any pronouns<br>
+⟡ ! i'm a minor !
+<p align="right">
+  <img width="75.625" height="51.5" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/alie.png?raw=true">
+</p>
 ⟡ bday : nov.10th<br>
 ⟡ im an artist ^_^<br>
-
-![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/f075d544752bc5cb13df23bd4545f8be.jpg?raw=true)
 
 ## ★ DNI if you're ★
 
@@ -56,3 +60,8 @@ welcome to my profile. (◣ _ ◢)<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
 ⟡ [YouTube](https://www.youtube.com/@DuztyStarz)<br>
 ⟡ [More in Resite](https://resite.link/Starru)
+
+
+<p align="left">
+  <img width="121" height="120" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/95a322b3.gif?raw=true">
+</p>
