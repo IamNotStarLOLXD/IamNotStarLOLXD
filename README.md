@@ -3,8 +3,17 @@
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ⋆✰⩇⩇: ⩇⩇✰⋆ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-welcome to my profile. (◣ _ ◢)<br>
-![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/95a322b3.gif?raw=true)
+<p align="center">
+  <img width="2095" height="360" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8bad8130.png?raw=true">
+</p>
+<p align="center">
+welcome to my profile. (◣ _ ◢)<br>  
+</p>
+
+<p align="center">
+  <img width="1191" height="670" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/1fc3475739f8ed497213fe40b5a056ce.jpg?raw=true">
+</p>
+
 ## ★ Abt me ★
 
 ⟡ name : duzt/duzty<br>
@@ -47,7 +56,3 @@ welcome to my profile. (◣ _ ◢)<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
 ⟡ [YouTube](https://www.youtube.com/@DuztyStarz)<br>
 ⟡ [More in Resite](https://resite.link/Starru)
-
-<br><br><br>
-space jumpscare<br>
-![image alt](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8898fcb4515712ba5792c83cbd24df26.jpg?raw=true)
