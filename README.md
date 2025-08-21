@@ -5,6 +5,8 @@
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ⋆✰⩇⩇: ⩇⩇✰⋆ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 </p>
 
+![](https://komarev.com/ghpvc/?username=IamNotStarLOLXD&color=ff6cbd)
+
 <p align="center">
   <img width="2095" height="360" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/8bad8130.png?raw=true">
 </p>
