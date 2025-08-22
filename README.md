@@ -14,6 +14,8 @@
 welcome to my profile. (◣ _ ◢)<br>  
 </p>
 
+whys making a github profile so hard T_T
+
 <p align="center">
   <img width="1191" height="670" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/1fc3475739f8ed497213fe40b5a056ce.jpg?raw=true">
 </p>
@@ -56,7 +58,7 @@ welcome to my profile. (◣ _ ◢)<br>
 
 ## ★ Where to find me ★
 
-⟡ Pony Town (MOST OF MY SKINS WILL HAVE MY DISCORD TAG, x_x_star_x_x)<br>
+⟡ Pony Town (MY SKINS USUALLY HAVE MY DISCORD TAG, BEING x_x_star_x_x ,, OCASIONALLY I WILL LINK MY GITHUB TO SOME OF MY SKINS)<br>
 ⟡ [Twitter](https://twitter.com/DuztyStarz)<br>
 ⟡ [Funkipedia Mods Wiki](https://fridaynightfunking.fandom.com/wiki/User:DuztyStarz)<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
