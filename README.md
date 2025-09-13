@@ -54,6 +54,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ Sometimes shy af<br>
 ⟡ Usually prefers you to ask to friend me on discord<br>
 ⟡ Sometimes responds late<br>
+⟡ If I decline joining ur party in PT it means I'm alr in one!!
 
 # <img width="42" height="32" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/2025_09_08_0rg_Kleki.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ WHERE TO FIND ME ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="42" height="32" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/2025_09_08_0rg_Kleki.png?raw=true">
 
