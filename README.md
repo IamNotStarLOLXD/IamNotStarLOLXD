@@ -63,7 +63,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
 ⟡ [Twitter NOT X](https://x.com/DuztyStarz)<br>
 ⟡ [Funkipedia (FNF MOD WIKI)](https://fridaynightfunking.fandom.com/wiki/User:DuztyStarz)<br>
-⟡ [ROBLOX](www.roblox.com/users/1591789785/profile)<br>
+⟡ [ROBLOX](https://www.roblox.com/users/1591789785/profile)<br>
 ⟡ [YOUTUBE](https://www.youtube.com/@DuztyStarz)<br>
 ⟡ MORE IN [RESITE](https://resite.link/Starru)<br><br>
 
