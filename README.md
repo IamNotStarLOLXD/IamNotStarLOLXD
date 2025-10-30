@@ -21,6 +21,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ I go by any pronouns but I mostly go by She/Her<br>
 ⟡ My birthday is November 10th and I'm a minor<br>
 ⟡ I'm an artist, I mostly draw forsaken/rage comics/dandys world/fnf/fnaf art. ^_^<br>
+⟡ i follow whoever i think is c00l<br>
 
 ![alt text](https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/Supplier_enterace_.png?raw=true)
 
