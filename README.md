@@ -40,6 +40,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ FNAF/DSAF ⭐<br>
 ⟡ RAGE COMICS / TROLLFACE/TROLLGE ⭐<br>
 ⟡ KIRBY ⭐<br>
+⟡ MLP ⭐<br>
 
 ⟡ ACNH<br>
 ⟡ BATIM<br>
