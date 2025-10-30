@@ -60,7 +60,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 
 # <img width="42" height="32" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/2025_09_08_0rg_Kleki.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ WHERE TO FIND ME ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="42" height="32" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/2025_09_08_0rg_Kleki.png?raw=true">
 
-⟡ [PonyTown](https://pony.town/)<br>
+⟡ [PonyTown](https://pony.town/) my skins design/color scheme change everytime idk why coughcough<br>
 ⟡ [Scratch](https://scratch.mit.edu/users/X_X_Star_X_X/)<br>
 ⟡ [Twitter NOT X](https://x.com/DuztyStarz)<br>
 ⟡ [Funkipedia (FNF MOD WIKI)](https://fridaynightfunking.fandom.com/wiki/User:DuztyStarz)<br>
