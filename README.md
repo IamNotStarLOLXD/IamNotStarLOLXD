@@ -36,7 +36,7 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ nsfw artists<br>
 ⟡ Associated with NFTS/NFT Account<br>
 ⟡ Fetish Account/Artist<br>
-⟡ COAAL fan iwc, as long as you don't mention any incest parts I wouldn't really care.<br>
+⟡ COAAL fan iwec, as long as you don't mention any incest parts I wouldn't really care. (i still recommend you either dni or iwec)<br>
 ⟡ Toxic Shippers, DoubleFedora Shippers, PizzaBuger shippers, c00ldude shippers<br>
 ⟡ Serenity Dear/Silly SK supporter<br>
 ⟡ More in [strawpage](https://duztystarz.straw.page/)<br>
