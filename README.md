@@ -1,4 +1,4 @@
-## " EXORCISN - CreepP !! ^_^ " ꒷꒦꒷꒦꒷꒦
+## " EXORCISM - Creep-P !! ^_^ " ꒷꒦꒷꒦꒷꒦
 
 ![](https://komarev.com/ghpvc/?username=IamNotStarLOLXD&color=d71e1e)
 
