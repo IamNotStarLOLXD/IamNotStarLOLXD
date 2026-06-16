@@ -7,7 +7,7 @@ Greetings. I am Duzt.<br>
   </p>
 
 <p align="center">
- <img width="736" height="531" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/16c47597b66ac6e8669f97295218acf1.jpg?raw=true">
+ <img width="736" height="531" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/Untitled515_20260616123448.png?raw=true">
 </p>
 
 
@@ -25,10 +25,10 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 
 # <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ ABOUT ME ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
 
-⟡ Names Duzt(Duzty), you can call me Star(Starri) or Yatta<br>
+⟡ Names Duzt(Duzty)<br>
 ⟡ I go by any pronouns, I wouldn't mind. ^_^<br>
 ⟡ My bday is on November 10th, keep inmind I'm a Minor. (15)<br>
-⟡ I'm an artist, I mostly draw Dandys World stuff.<br>
+⟡ I'm an artist!!<br>
 
 # <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true"> ꒦꒷꒦꒷꒦꒷꒦꒷ DNI ꒷꒦꒷꒦꒷꒦꒷꒦ <img width="35" height="35" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/pngtree-bulbous-buttercup-flower-png-image_10118468.png?raw=true">
 
@@ -36,9 +36,6 @@ HELLO! WELCOME TO MY GITHUB PROFILE!  ̤̮<br>
 ⟡ nsfw artists<br>
 ⟡ Associated with NFTS/NFT Account<br>
 ⟡ Fetish Account/Artist<br>
-⟡ COAAL fan iwec, as long as you don't mention any incest parts I wouldn't really care. (i still recommend you either dni or iwec)<br>
-⟡ Toxic Shippers, DoubleFedora Shippers, PizzaBuger shippers, c00ldude shippers<br>
-⟡ Serenity Dear/Silly SK supporter<br>
 ⟡ More in [strawpage](https://duztystarz.straw.page/)<br>
 
 ⟡ anyone under 13 or above 18 iwc<br>
