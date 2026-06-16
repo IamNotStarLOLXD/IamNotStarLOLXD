@@ -7,7 +7,7 @@ Greetings. I am Duzt.<br>
   </p>
 
 <p align="center">
- <img width="736" height="531" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/Untitled515_20260616123448.png?raw=true">
+ <img width="736" height="736" src="https://github.com/IamNotStarLOLXD/IamNotStarLOLXD/blob/main/Untitled515_20260616123448.png?raw=true">
 </p>
 
 
